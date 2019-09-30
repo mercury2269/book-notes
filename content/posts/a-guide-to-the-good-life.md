@@ -1,7 +1,9 @@
 ---
 title: "A Guide to the Good Life"
+author: William B. Irvine
+link: https://www.amazon.com/Guide-Good-Life-Ancient-Stoic-ebook/dp/B0040JHNQG
 date: 2019-09-29T17:39:42-07:00
-draft: true
+draft: false
 rating: 9
 tags:
 - stoicism
@@ -61,3 +63,93 @@ Fatalism
 > we should abstain from those pleasures that can capture us in a single encounter: This would include the pleasure to be derived from certain drugs: ...
 
 > conciously abstraining from pleasure can itself be pleasant. ... you will "be pleased and will praise yourself" fot not eating it. (an ice cream)
+
+> A stoic mind will be active duringa bedtime meditation. He will think about the events of the day. Did something disrupt his tranquility? Did he experience anger? Envy? Lust? Why did the day's events upset him? Is there something he could have done to avoid getting upset? 
+
+Reflecting on day's events checklist:
+
+* Psychological techniques
+ - Periodically engage in negative visualizations
+ - Do we take time to distinguish between those things over which we have complete control, those things over which we have no control all, and those things over which we have some but not complete control?
+ - Are we careful to internalize our goals?
+ - Have we refrained on dwelling on the past and instead focus our attention on the future?
+ - Have we practiced acts of self-denial?
+* Are we following advice offered by the Stoics?
+ - Are we performing our duty?
+
+> Epictetus things that in our practice of Stoicism, we should be so inconspicuous that others don't label us Stoics - or even label us philosophers.
+
+> .. a person who performs well the function of man will be both rational and socal.
+
+> To fulfill my social duty - to do my duty to my kind -- I must feel a concern for all mankind. I must remember that we humans were created for one another, that we were born, says Markus, to work together the way our hands or eyelids do. Therefore, in all I do, I must have as my goal "the service and harmony of all." More precisely, "I am bound to do good to my fellow-creatures and bear with them." 
+
+> And when I do my social duty, says Markus, I should do so quietly and efficiently.
+
+> The reward for doing one's social duty, Markus says, is something far better than thanks, admiration, or sympathy.
+
+> We should instead seek, as friends, people who share our values in particular, people who are doing a better job than we are of living in accordance with these values. ... we should work hard to learn what we can from them.
+
+> Vices, Seneca warns, are contagious: They spread, quickly and unnoticed, from those who have the to those with whom they come into contact.
+
+> Seneca advises us to avoid people who are simply whiny, "who are melancholy and bewail everything, who find pleasure in every opportunity to complain."
+
+> We should remind ourselves that "this mortal life endures but a moment," meaning that we soon will be dead. Putting annoying incidents into their cosmic context, he thinks, will make their triviality apparent and therefore alleviate our annoyance.
+
+> ... in a good marriage, two people will join in a loving union and will try to outdo each other in the care they show for each over. Such a marriage, one imagines, will be very happy. 
+
+> Few people, Musonius would have us believe, are happier than the person who has both a loving spouse and devoted children.
+
+Dealing with insults: pause, is the insult true, if it is, why is it an insult, if it is self evident? No reason to be upset. 
+
+> When we consider the sources of insults, says Seneca, we will often find that those who insult us can best be described as overgrown children. Such people, says Markus, rather than deserving our anger, deserve our pity.
+
+> From this it follows that if we can convince ourselves that a person has done us not harm by insulting us, his insults will carry no sting. 
+
+How to respond? One way is with humor (self depreciating is always effective), another just ignoring it. 
+
+Grief. 
+
+> if we contenplate the deaths of those we love, we will likely take full advantage of our relationship with them and therefore won't, if they die, find ourselves filled with regrets about all the things we could and should have done wwith and for them. 
+
+> think about how much worse off she would be today if she had never been able to enjoy his company. In other words, rather than mourning the end of his life, she should be thankful that he lived at all. 
+
+> Seneca rejects the idea of allowing ourselves to become angry in order to motivate ourselves, he is open to the idea of pretending to be angry in order to motivate others. 
+
+> We should fight our tendency to believe the worst about others and our tendency to jump to conclusions about their motivation.
+
+> What seems virtually important to use will seem unimportant to our grandchildren. Thus, when we feel ourselves getting angry about something, we should pause to consider its cosmic (in)significance.
+
+> When angry, says Seneca, we should take steps to "turn all [anger's] indications into their opposites." We should force ourselves to relax our face, soften our voice, and slow our pace of walking.
+
+> Appologizing for the outburst can help us become a better person: By admitting our mistakes, we lessen the chance that we will make them again in the future.
+
+> If we seek social status, we give other people power over us: We have to do things calculated to make them admire us, and we have to refrain from doing things that will trigger their disfavor.
+
+> If we wish to retain our freedom, says Epictetus, we must be careful, while dealing with other people, to be indifferent to what they think of us. Furthermore, we should be consistent in our indiferrence; we should, in other words, be as dismissing of their approval as we are of their disapproval.
+
+> Rather than living to eat -- rather than spending our life pursuing to be derived from food -- we should eat to live. 
+
+> .. we should favor simple clothing, housing, and furnishings
+
+> Those who crave luxury typically have to spend considerable time and energy to attain it; those who eschew luxury can devote the same time and energy to other, more worthwhile undertakings.
+
+> Epictitus encourages us to keep in mind that self-respect, trustworthiness, and high-mindedness are more valuable than wealth, meaning that if the only way to gain wealth is to give up these personal charachteristics, we would be foolish to seek wealth.
+
+> for Stoic to acquire wealth, as long as he does not harm others to obtain it. It is also acceptable for a Stoic to enjoy wealth, as long as he is careful not to cling to it. 
+
+> In our youth, because we assumed that we would live forever, we took our days for granted and as a result wasted many of them. In our old age, however, waking up each morning can be a cause for celebration.
+
+> Musonius goes on to suggest that we would also be better off if, instead of working hard to become wealthy, we trained ourselves to be satisfied with what we have.
+
+> Instead of knocking ourselves out trying to become popular, we worked to maintain and improve our relationships with those we knew to be true friends. 
+
+> Because they have learned to enjoy things that are easily obtainable or that can't be taken from them, Stoics will find much in life to enjoy. They might, as result, discover that they enjoy being the person they are, living the life they are living, in the universe they happen to inhabit. Thus, I should add, is no small accomplishment.
+
+> We are no longer children, he says, and yet we procrascinate. .. we do no have the luxury of postponing our training; we must start in this very day.
+
+> Stoicism teaches us that we are very much responsible for our happiness as well as our unhappines. It also teaches us that it is only when we assume responsibility for our happiness that we will have a reasonable chance of gaining it.
+
+> When doing things to cause myself physical or mental discomfort, I view myself - or at any rate, a part of me - as an opponent in a kind of game. This opponent - my "other self," as it were - is on evolutionary autopilot: He wants nother more than to be comfortable and to take advantage of whatever opportunities for pleasure present themselves. My other self lacks self-discipline; left to his own devices, he will always take the path of least resistance through life and as a result will be little more than a simple-minded pleasure seeker. He is also a coward. My other self is not my friend; to the contrary, he is best regarded, in the words of Epictetus, "as an enemy lying in wait." 
+> To win points in the contest with other self, I must establish my dominance over him. To do this, I must cause him to experience, discomfort he could easily have avoided, and I must prevent him from experiencing pleasures he might otherwise have enjoyed. When he is scared of doing something, I must force him to confront his fears and overcome them.
+
+> The joy the Stoics were interested in can be described as a kind of objectless enjoyment -- an enjoyment not of any particular thing but of all this. It is a delight in simply being able to participate in life. It is a profound realization that even though all this didn't have to be possible, it is possible - wonderfully, magnificently possible. 
