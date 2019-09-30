@@ -1,0 +1,4 @@
+baseURL = "http://books.maskalik.com/"
+languageCode = "en-us"
+title = "My book notes"
+theme = "er"
