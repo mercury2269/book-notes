@@ -113,7 +113,7 @@ In the critical situations we must:
 >   
 > Love, Freud said, is the great educator. We learn when we give it. We learn when we get it. We get closer to stillness through it.   
 >   
-> It's been said that the world "love" is spelled "time". It is also spelled "work" and "sacrifice" and "difficulty", "commitment" and ocasionally "madness". But always punctuated by "reward".  
+> It's been said that the world "love" is spelled "time". It is also spelled "work" and "sacrifice" and "difficulty", "commitment" and occasionally "madness". But always punctuated by "reward".  
 >   
 > To go through our days looking out for no one but ourselves? To think that we can or must do this all alone? To accrue mastery or genius, wealth or power, solely for our own benefit? What is the point?
 
