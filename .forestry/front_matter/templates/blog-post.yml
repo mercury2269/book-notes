@@ -21,4 +21,5 @@ fields:
   name: tags
   label: tags
 pages:
+- content/posts/atomic-habits.md
 - content/posts/stillness-is-the-key.md
