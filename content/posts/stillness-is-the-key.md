@@ -76,51 +76,82 @@ In the critical situations we must:
 >
 > Virtue is not holiness, but rather moral and civic experience in the course of daily life.
 >
-> Different situations naturally call for different virtues and different epithets for the self. When we're going into a tough assignment, we can say to ourselves over and over again, "Strength and courage." Before a tough conversation with a significant other: "Patience and kindness." It times of corruption and evil: "Goodness and honesty."  
->   
+> Different situations naturally call for different virtues and different epithets for the self. When we're going into a tough assignment, we can say to ourselves over and over again, "Strength and courage." Before a tough conversation with a significant other: "Patience and kindness." It times of corruption and evil: "Goodness and honesty."
+>
 > Each of us must cultivate a moral code, a higher standard that we love almost more than life itself. Each of us must sit down and ask: _What's important to me? What would I rather die for than betray? How am I going to live and why?_
 
-> As Freud explained, "We all demand reparation for our early wounds to our narcissism," thinking we are owed because we were wronged or deprived.  
->   
-> It's dangerous business, though, creating a monster to protect your wounded inner child.  
->   
+> As Freud explained, "We all demand reparation for our early wounds to our narcissism," thinking we are owed because we were wronged or deprived.
+>
+> It's dangerous business, though, creating a monster to protect your wounded inner child.
+>
 > Give more. Give what you didn't get. Love more. Drop the old story.
 
-> Indeed, most desires are at the core irrational emotions, and that's why stillness requires that we sit down and dissect them. (Think awareness and meditation) We want to think ahead to the refractory period, to consider the inevitable hangover before we take a drink. When we do that, these desires lose some of their power. 
+> Indeed, most desires are at the core irrational emotions, and that's why stillness requires that we sit down and dissect them. (Think awareness and meditation) We want to think ahead to the refractory period, to consider the inevitable hangover before we take a drink. When we do that, these desires lose some of their power.
 >
->   
-> Only those of us who take the time to explore, to question, to extrapolate the consequences of our desires have an opportunity to overcome them and to stop regrets before they start. Only them know that real pleasure lies in having a soul that's true stable, happy and secure. 
+> Only those of us who take the time to explore, to question, to extrapolate the consequences of our desires have an opportunity to overcome them and to stop regrets before they start. Only them know that real pleasure lies in having a soul that's true stable, happy and secure.
 
-> Most people never learn that their accomplishments will ultimately fail to provide the relief and happiness we tell ourselves they will.   
->   
+> Most people never learn that their accomplishments will ultimately fail to provide the relief and happiness we tell ourselves they will.
+>
 > The need for of progress can be the enemy of enjoying the process.
 >
->   
-> You will never be okay by way of external accomplishments. _Enough_ comes from the inside. It comes from stepping off the train. From seeing what you already have, what you've always had. 
+> You will never be okay by way of external accomplishments. _Enough_ comes from the inside. It comes from stepping off the train. From seeing what you already have, what you've always had.
 >
->   
-> It's perfectly possible to do and make good work from a good place. You can be healthy and still and successful. 
+> It's perfectly possible to do and make good work from a good place. You can be healthy and still and successful.
 >
->   
-> What do we want more of in life? That's the question. It's not accomplishments. It's not popularity. It's moments when we feel like we are enough. 
+> What do we want more of in life? That's the question. It's not accomplishments. It's not popularity. It's moments when we feel like we are enough.
 
-> Don't let the beauty of life escape you. See the world as the temple that it is. Let every experience be churchlike. Marvel at the fact that only of this exists - that you exist. Even when we are killing each other in pointless wars, even when we are killing ourselves with pointless work, we can stop and bathe in the beauty that surrounds us, always. 
+> Don't let the beauty of life escape you. See the world as the temple that it is. Let every experience be churchlike. Marvel at the fact that only of this exists - that you exist. Even when we are killing each other in pointless wars, even when we are killing ourselves with pointless work, we can stop and bathe in the beauty that surrounds us, always.
 
-> Who is there would would wish to be surrounded by all the riches in the world and enjoy every abundance in life and yet not love or be loved by anyone? was Cicero's question some two thousand years ago. It echoes on down to us, still true forever.   
->   
-> Life without relationships, focused solely on accomplishments, is empty and meaningless. A life solely about work and doing is terribly out of balance; indeed, it requires constant motion and busyness to keep from falling apart. 
+> Who is there would would wish to be surrounded by all the riches in the world and enjoy every abundance in life and yet not love or be loved by anyone? was Cicero's question some two thousand years ago. It echoes on down to us, still true forever.
 >
->   
-> Love, Freud said, is the great educator. We learn when we give it. We learn when we get it. We get closer to stillness through it.   
->   
-> It's been said that the world "love" is spelled "time". It is also spelled "work" and "sacrifice" and "difficulty", "commitment" and occasionally "madness". But always punctuated by "reward".  
->   
+> Life without relationships, focused solely on accomplishments, is empty and meaningless. A life solely about work and doing is terribly out of balance; indeed, it requires constant motion and busyness to keep from falling apart.
+>
+> Love, Freud said, is the great educator. We learn when we give it. We learn when we get it. We get closer to stillness through it.
+>
+> It's been said that the world "love" is spelled "time". It is also spelled "work" and "sacrifice" and "difficulty", "commitment" and occasionally "madness". But always punctuated by "reward".
+>
 > To go through our days looking out for no one but ourselves? To think that we can or must do this all alone? To accrue mastery or genius, wealth or power, solely for our own benefit? What is the point?
 
-> Our stillness depends on our ability to slow down and choose not to be angry, to run on different fuel. Fuel that helps us win ad build, and doesn't hurt other people, our cause, or our chance at peace. 
+> Our stillness depends on our ability to slow down and choose not to be angry, to run on different fuel. Fuel that helps us win ad build, and doesn't hurt other people, our cause, or our chance at peace.
 
-> The truly philosophical view is that not only is originally necessary, but everyone is necessary. Even the people you don't like. Even the ones who really piss you off. Even the people wasting their lives, cheating, or breaking the rules are part of the larger equation. We can appreciate - or at lest sympathize with-them, rather than to try to fight or change them.   
+> The truly philosophical view is that not only is originally necessary, but everyone is necessary. Even the people you don't like. Even the ones who really piss you off. Even the people wasting their lives, cheating, or breaking the rules are part of the larger equation. We can appreciate - or at lest sympathize with-them, rather than to try to fight or change them.
+>
+> We can make an active effort to practice forgiveness, especially to those who might have caused those inner-child wounds we have worked to heal. We can seek understanding with those we disagree with. To understand all is to forgive all. To love all is to be at peace with all, including yourself.
+>
+> The less we are convinced of our exceptionalism, the greater the ability we have to understand and contribute to our environment, the less blindly driven we are by our own needs, the more clearly we can appreciate the needs of those around us, the more we can appreciate the larger ecosystem of which we are a part.
+
+### About Churchill
+
+> "The balance he maintained between flat-out work and creative and restorative leisure is worth study by anyone holding a top position." - Paul Johnson (one of Churchill's best biographers)
+>
+> ... other four lessons from Churchill's remarkable life were to
+>
+> * aim high
+> * never allow mistakes or criticism to get you down
+> * to waste no energy on grudges, duplicity, or infighting
+> * make room for joy
+>
+> "Every night I try myself by court martial to see if I have done anything effective during the day. I don't mean just pawing the ground - anyone can go through the motions - but something really effective."
+>
+> In a little book titled _Painting as a Pastime,_ Churchill spoke eloquently of  reliance on new activities that use other parts of our minds and bodies to relieve the areas where we are overworked. "The cultivation of a hobby and new forms of interest is therefore a policy of first importance to a public man," he wrote. "To be really happy and really safe, one ought to have at least two or three hobbies, and they must all be real."
+>
 >   
-> We can make an active effort to practice forgiveness, especially to those who might have caused those inner-child wounds we have worked to heal. We can seek understanding with those we disagree with. To understand all is to forgive all. To love all is to be at peace with all, including yourself.   
+> Churchill himself would write that every prophet must be forced into the wilderness - where they undergo solitude, deprivation, reflection, and meditation. It's from this physical ordeal he said that "psychic dynamite" is made. 
+
+> Epicurus once said that the wise will accomplish three things in life: leave written works behind them, be financially prudent and provide for the future, and cherish country living.
+
+> If we are to be half as productive as Churchill, and manage to capture the same joy and zest and stillness that defined his life, there are traits we will still need to cultivate. Each of us will:
+>
+> * Rise above our physical limitations.
+> * Find hobbies that rest and replenish us.
+> * Develop a reliable, disciplined routine.
+> * Spend time getting active outdoors.
+> * Seek out solitude and perspective.
+> * Learn to sit - to do nothing when called for.
+> * Get enough sleep and rein in our workaholism.
+> * Commit to causes bigger that ourselves. 
+
+> You don't solve a maze by rushing through. You have to stop and think. You have to walk slowly and carefully, reining in your energy - otherwise you'll get hopelessly lost. The same is true for the problems we face in life.
+>
 >   
-> The less we are convinced of our exceptionalism, the greater the ability we have to understand and contribute to our environment, the less blindly driven we are by our own needs, the more clearly we can appreciate the needs of those around us, the more we can appreciate the larger ecosystem of which we are a part. 
+> "It is only ideas gained from walking that have any worth." - Freidrich Nietzsche
