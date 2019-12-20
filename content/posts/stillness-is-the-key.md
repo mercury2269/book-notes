@@ -155,3 +155,49 @@ In the critical situations we must:
 >
 >   
 > "It is only ideas gained from walking that have any worth." - Freidrich Nietzsche
+
+> Done enough times, done with sincerity and feeling, routine becomes a ritual. The regularity of it - the daily cadence - creates deep and meaningful experience. To one person, taking care of a horse is a chore. To Simon Bolivar it was a sacred, essential part of his day. When the body is busy with the familiar, the mind can relax. The monotony becomes muscle memory. To deviate seems dangerous, wrong. As if it's inviting failure in. 
+
+> One of Seneca's most powerful metaphors is the slaveowner owned by his slaves, or a wealthy man whose vast estates lord over him rather than the other way around (in modern times, we have our own term for this: being "house poor")
+>
+>   
+> The person who is afraid to lose their stuff, who has their identity wrapped up in their things, gives their enemies an opening. They make themselves extra vulnerable to fate.   
+>   
+> The best car is no the one that turns most heads, but the one you have to worry about the least. The best clothes are the ones that are the most comfortable, that require you to spend the least amount of time shopping - regardless of what the magazines say. The best house for you is the one that feels the most like home. Don't use your money to purchase loneliness, or headaches, or status anxiety. 
+>
+>   
+> "If I was to sump up the single best problem of senior leadership in the Information Age," four-star Marine Corps general and former secretary of defense James Mattis has said, "it's lack of reflection. Solitude allows you to reflect while others are reacting. We need solitude to refocus on prospective decision making, rather than just reacting to problems as they arise."
+>
+>   
+> Many of us have talents and gifts that are so extraordinary that we owe it to ourselves and the world to express and fulfill them. But we're not going to be able to do that if we're not taking care of ourselves, or if we have stretched ourselves to the breaking point.  
+>   
+> Moderation. Being present. Knowing your limits.  
+> This is the key. The body that each of us have was a gift. Don't work it to death. Don't burn it out.  
+> Protect the gift. 
+
+> The overworked person creates a crisis that they try to solve by working harder. Mistakes are piled upon mistakes by the exhausted, delirious mind.   
+>   
+> Leisure historically meant simply freedom from the work needed to survive, freedom for intellectual or creative pursuits. It was learning and study and the pursuit of higher things.   
+>   
+> Leisure is not the absence of a activity, it is activity. What absent is any external justification - you can't do leisure for pay, you can't do it to impress people. You have to do it for you.   
+>   
+> "If an action tires your body but puts your heart at ease," Xunzi said, "do it." There is a reason philosophers in the West often trained in wrestling and boxing, while philosophers in the East trained in martial arts. These are not easy activities, and if you're not present while you do them, you'll get your ass kicked.   
+>   
+> Of course, leisure can easily become an escape, but the second that happens it's not leisure anymore. When we take something relaxing and turn it into a compulsion, it's not leisure, because we are no longer choosing it. 
+
+> Sure, the rush of traveling, the thrill of surfing, or the altered state of a psychodelic can relive some of the tension that's build up in our lives. Maybe you get some pretty pictures out of it, and some pseudo-profundity that impresses your friends. 
+>
+> But when that wears off? What's left?  
+>   
+> When you defer and delay, interest is accumulating. The bill still comes due... and it will be even harder to afford then than it will be right now.  
+> The one thing that you can't escape in your life is yourself.   
+> What you seek will come only if you sit and do the work, if you probe yourself with real self-awareness and patience.   
+> Build a life that you don't need to escape from. 
+
+> Action is what matters.
+>
+> Pick up the phone and make the call to tell someone what they mean to you. Share your wealth. Run for office. Pick up the trash you see on the ground. Step in when someone is being bullied. Step in even if you're scared, even if you might get hurt. Tell the truth. Maintain your vows, keep your word. Stretch out a hand to someone who has fallen. 
+
+> "As a well-spent day brings a happy sleep, so a well employed life brings a happy death. - Leonardo Da Vinci   
+>   
+> Seneca reminded himself that before we were born we were still and at peace, and so we will be once again after we die. A light loses nothing by being extinguished, he said, it just back to how it was before. 
