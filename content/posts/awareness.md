@@ -2,7 +2,7 @@
 author = "Anthony De Mello"
 date = 2019-11-24T08:00:00Z
 link = "https://amzn.to/3a12yap"
-rating = 7
+rating = 6
 tags = ["awareness"]
 title = "Awareness"
 
