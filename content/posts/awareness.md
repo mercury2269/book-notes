@@ -36,4 +36,28 @@ title = "Awareness"
 >
 > Anytime you have a negative feeling toward anyone, you're living in an illusion. There's something seriously wrong with you. You're not seeing reality. Something inside of you has to change. But that do we generally do when we have a negative feeling? "He is to blame, she is to blame. She's got to change." No! The world's all right. The one who has to change is _you._
 >
-> Think about that. Because if you do, the next thing you will be doing, whether you're aware of it or not, is _demanding_ that other people contribute to your happiness. Then there will be a next step - fear, fear of loss, fear of alienation, fear of rejection, mutual control. Perfect love casts out fear. Where there is love there are no demands, no expecations, no dependency. I do no demand that you make me happy; my happiness does not lies in you. If you were to leave me, I will not feel sorry for myself; I enjoy your company immensely, but I do not cling.
+> Think about that. Because if you do, the next thing you will be doing, whether you're aware of it or not, is _demanding_ that other people contribute to your happiness. Then there will be a next step - fear, fear of loss, fear of alienation, fear of rejection, mutual control. Perfect love casts out fear. Where there is love there are no demands, no expectations, no dependency. I do no demand that you make me happy; my happiness does not lies in you. If you were to leave me, I will not feel sorry for myself; I enjoy your company immensely, but I do not cling.
+>
+> "When the archer shoots for no particular prize, he has all his skills; when he shoots to win a brass buckle, he is already nervous; when he shoots for a gold price, he goes blind, sees two targets, and is out of his mind. His skill has not changed, but the prize divides him. He cares! He thinks more of winning than of shooting, and the need to win drains him of power.
+
+> There's only one reason why you're not experience bliss at this present moment, and it's because you're thinking or focusing on what you don't have. 
+>
+> To watch everything inside of you and outside, and the there is something happening to you, to see it as if it were happening to someone else, with no comment, no judgement, no interference, no attempt to change, only to understand. As you do this, you'll begin to realize that increasingly you are dis-identifying from "me".
+>
+> What you are aware of you are in control of; what you are not aware of is in control of you. You are always a slave to what you're not aware of. When you're aware of it. you're free from it. It's there, but you're not affected by it. You're not controlled by it; you're not enslaved by it. That's the difference. 
+>
+> So it's frightfully important that I listen to me when I'm listening to you. That's what they are training us to do, obtaining awareness. 
+>
+> When you said, "I was a success," you were in error; ... You identified yourself with success. The same thing when you said, "I am a failure, a lawyer, a businessman." You know what's going to happen to you if you identify yourself with those things. You're going to cling to them, you're going to be worried that they may fall apart, and that's where your suffering comes in.
+
+> You're a success in life when you wake up! Then you don't have to apologize to anyone, you don't have to explain anything to anyone, you don't give a damn what anybody thinks about you or what anybody says about you. You have no worries; you're happy. That's what I call success.
+
+> You don't have to add anything in order to be happy; you've got to drop something. Life is easy, life is delightful. It's only hard on your illusions, your ambitions, your greed, your cravings. Do you know where these things come from? From having identified with all kinds of labels!
+
+> We spend all our time and energy trying to change external circumstances, trying to change our spouses, our bosses, our friends, our enemies, and everybody else, We don't have to change anything. Negative feelings are in you. No person on earth has the power to make you unhappy. 
+
+> Put this program into action, a thousand times: (a) identify the negative feelings in you; (b) understand that they are in you, not in the world, not in external reality; (c) do not see them as an essential part of "I"; these things come and go; (d) understand that when you change, everything changes. 
+
+> Part of waking up is that you life your life as you see fit. And understand: That is not selfish. The selfish thing is to demand that someone else live their life as YOU see fit. That's selfish. It is not selfish to live your life as you see fit. The selfishness lies in demanding that someone else live their life to suit your tastes, or your pride, or your profit, or your pleasure. That's truly selfish. 
+
+> Painful experiences make life delightful, but they don't lead to growth in themselves. What leads to growth is painful experiences. Suffering points up an area in you where you have no yet grown, where you need to grow and be transformed and change. 
