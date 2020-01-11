@@ -61,3 +61,19 @@ title = "Awareness"
 > Part of waking up is that you life your life as you see fit. And understand: That is not selfish. The selfish thing is to demand that someone else live their life as YOU see fit. That's selfish. It is not selfish to live your life as you see fit. The selfishness lies in demanding that someone else live their life to suit your tastes, or your pride, or your profit, or your pleasure. That's truly selfish. 
 
 > Painful experiences make life delightful, but they don't lead to growth in themselves. What leads to growth is painful experiences. Suffering points up an area in you where you have no yet grown, where you need to grow and be transformed and change. 
+
+If you don't look at things through your concepts, you'll never get bored. Every single thing is unique (if you saw one rabbit you saw them all). 
+
+> If all you experience is your concept, you're not experiencing reality, because reality is concrete. 
+
+> How can you love people when you need people? You can only use them. If I need you to make me happy, I've got to use you, I've got to manipulate you. 
+
+> There is no begging bowl in a true community. There's no clinging, no anxiety, no fear, no hangover, no possessiveness, no demands. Free people from community, not slaves. 
+
+> It's like people who are busy planning their vacation; they spend months planning it, and they get to the spot, and they're all anxious about their reservations for flying back. But they're taking pictures alright, and later they'll show you pictures in an album, of places they never saw but only photographed. That's a symbol of modern life. ... Slow down and taste and smell and hear, and let your senses come alive. 
+
+> When you are ready to lose your life, you live it. But if you're protecting your life, you're dead. 
+
+> The love of work which you enjoy doing for the love of itself; the love of laughter and intimacy with people to whom you do not cling and whome you do not depend emotionally but whose company you enjoy. It will also help if you take on activities that you can do with your whole being, activities that you so love to do that while you're engaged in them success, recognition, and approval simply do not mean a thing to you. 
+
+> Nourish yourself on wholesome food, good wholesome food. I'm not talking about actual food, I'm talking about sunsets, about nature, about a good movie, about a good book, about enjoyable work, about good company, and hopefully you will break your addictions to those other feelings. 
