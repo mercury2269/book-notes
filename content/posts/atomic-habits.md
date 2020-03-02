@@ -8,17 +8,17 @@ tags = ["self-improvement", "habits"]
 title = "Atomic Habits"
 
 +++
-Summary 
+Summary
 
 My Notes
 
-... a slight change in your daily habits can guide your life to a very different destination. Making a choice that is 1 percent better of 1 percent worse seems insignificant in the moment, but over the span of moments that make up a lifetime these choices determining the difference between who you are and who you could be. Success is the product of daily habits - not once in-a-lifetime transformation. 
+... a slight change in your daily habits can guide your life to a very different destination. Making a choice that is 1 percent better of 1 percent worse seems insignificant in the moment, but over the span of moments that make up a lifetime these choices determining the difference between who you are and who you could be. Success is the product of daily habits - not once in-a-lifetime transformation.
 
 Productivity compounds (one extra task is a small feat on any given day, but counts for a lot over career)
 
 Knowledge compounds (... each book opens up different ways of thinking about old ideas. )
 
-Relationships compound. Being a little nicer can result in strong connections. 
+Relationships compound. Being a little nicer can result in strong connections.
 
 ...habits often appear to make no difference until you cross a critical threshold and unlock a new level of performance. In the early and middle stages of any quest, there is often a Valley of Disappointment. You expect to make progress in a linear fashion and it's frustrating how ineffective changes can seem during the first days, weeks, and even months. It doesn't feel like you are going anywhere. It's a hallmark of any compounding process: the most powerful outcomes are delayed.
 
@@ -27,3 +27,34 @@ This is one of the core reasons why it is so hard to build habits that last. Peo
 > When nothing seems to help, I go and look at a stonecutter hammering away at his rock, perhaps a hundred times without as much as a crack showing in it. Yet at the hundred and first blow it will split in two, and I know it was not that last blow that did it - but all that had gone before. - Jacob Riis
 
 Goals are about the results you want to achieve. Systems are about the process that lead to those results. **If you want better results, then forget about setting goals. Focus on your system instead.**
+
+When you solve problems at the results level, you only solve them temporarily. In order to improve for good, you need to solve problems at the systems level. Fix the inputs and the outputs fix themselves. 
+
+The purpose of setting goals is to win the game. The purpose of building systems is to continue playing the game. True long-term thinking is goal-less thinking. It's not about any single accomplishment. Ultimately, it is your commitment to the _process_ that will determine your _progress_.
+
+You might start a habit because of motivation, but the only reason you'll stick with one is that it becomes part of your identity. 
+
+The goal is not to read a book, the goal is to become a reader. 
+
+Every action you take is a vote for the type of person you wish to become.
+
+The most practical way to change who you are is to change what you do. 
+
+* Each time you encourage your employees, you are a leader. 
+
+New identifies require new evidence. If you keep casting the same votes you've always cast, you're going to get the same results you've always had. If nothing changes, nothing is going to change. It is a simple two-step process.
+
+1. Decide the type of person you want to be.
+2. Prove it to yourself with small wins.
+
+Ask yourself, "Who is the type of person that could get the outcome I want?"
+
+Habits are not about having something. They are about _becoming_ someone. 
+
+... the cue triggers a craving, which motivates a response, which provides a reward, which satisfies the craving and, ultimately, becomes associated with the cue. Together, these four steps form a neurological feedback loop - cue, craving, response, reward;
+
+You need to be aware of your habits before you can change them. 
+
+Pointing-and-Calling raises your level of awareness from non-conscious habit to a more conscious level by verbalizing your actions. 
+
+The Habit  Scorecard is a simple exercise you can use to become more aware of your behavior. 
