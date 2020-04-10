@@ -28,19 +28,21 @@ This is one of the core reasons why it is so hard to build habits that last. Peo
 
 Goals are about the results you want to achieve. Systems are about the process that lead to those results. **If you want better results, then forget about setting goals. Focus on your system instead.**
 
-When you solve problems at the results level, you only solve them temporarily. In order to improve for good, you need to solve problems at the systems level. Fix the inputs and the outputs fix themselves. 
+When you solve problems at the results level, you only solve them temporarily. In order to improve for good, you need to solve problems at the systems level. Fix the inputs and the outputs fix themselves.
 
 The purpose of setting goals is to win the game. The purpose of building systems is to continue playing the game. True long-term thinking is goal-less thinking. It's not about any single accomplishment. Ultimately, it is your commitment to the _process_ that will determine your _progress_.
 
-You might start a habit because of motivation, but the only reason you'll stick with one is that it becomes part of your identity. 
+### How Your Habits Shape Your Identity
 
-The goal is not to read a book, the goal is to become a reader. 
+You might start a habit because of motivation, but the only reason you'll stick with one is that it becomes part of your identity.
+
+The goal is not to read a book, the goal is to become a reader.
 
 Every action you take is a vote for the type of person you wish to become.
 
-The most practical way to change who you are is to change what you do. 
+The most practical way to change who you are is to change what you do.
 
-* Each time you encourage your employees, you are a leader. 
+* Each time you encourage your employees, you are a leader.
 
 New identifies require new evidence. If you keep casting the same votes you've always cast, you're going to get the same results you've always had. If nothing changes, nothing is going to change. It is a simple two-step process.
 
@@ -49,12 +51,16 @@ New identifies require new evidence. If you keep casting the same votes you've a
 
 Ask yourself, "Who is the type of person that could get the outcome I want?"
 
-Habits are not about having something. They are about _becoming_ someone. 
+Habits are not about having something. They are about _becoming_ someone.
 
 ... the cue triggers a craving, which motivates a response, which provides a reward, which satisfies the craving and, ultimately, becomes associated with the cue. Together, these four steps form a neurological feedback loop - cue, craving, response, reward;
 
-You need to be aware of your habits before you can change them. 
+You need to be aware of your habits before you can change them.
 
-Pointing-and-Calling raises your level of awareness from non-conscious habit to a more conscious level by verbalizing your actions. 
+### The Man Who Didn't Look Right
 
-The Habit  Scorecard is a simple exercise you can use to become more aware of your behavior. 
+In order to change our habits we must be first aware of them. James provides couple of tools:
+
+Pointing-and-Calling raises your level of awareness from non-conscious habit to a more conscious level by verbalizing your actions. If you want to cut back on eating cookies, before you are about to eat one, say out load, "I'm about about to eat this cookie, but I don't need it. Eating it will cause me to gain weight and hurt my health."
+
+The Habit Scorecard is a simple exercise you can use to become more aware of your behavior.
