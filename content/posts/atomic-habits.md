@@ -97,4 +97,4 @@ If you want behaviors that are stable and predictable, you need an environment t
 
 ### The Secret to Self-Control
 
-It's easier to practice self-restraint when you don't have to use it very often. So, yes, perseverance, grit, and will-power are essential to success, but the way to improve these qualities is not by wishing you were a more disciplined person, but by creating a more disciplined environment. 
+Instead of summoning a new dose of willpower when you want to do the right thing, your energy would be better spent optimizing your environment. Make the cues of your good habits obvious and the cues of your bad habits invisible. 
