@@ -64,3 +64,37 @@ In order to change our habits we must be first aware of them. James provides cou
 Pointing-and-Calling raises your level of awareness from non-conscious habit to a more conscious level by verbalizing your actions. If you want to cut back on eating cookies, before you are about to eat one, say out load, "I'm about about to eat this cookie, but I don't need it. Eating it will cause me to gain weight and hurt my health."
 
 The Habit Scorecard is a simple exercise you can use to become more aware of your behavior.
+
+### The Best Way to Start a New Habit
+
+People who make a specific plan for when and where they will perform a new habit are more likely to follow through. 
+
+Two strategies
+
+Implementation Intention is a plan you make beforehand about when and where to act.
+
+Example: I will \[BEHAVIOR\] at \[TIME\] in \[LOCATION\]
+
+Habit stacking is a strategy you can use to pair a new habit with a current habit.
+
+Example: After \[CURRENT HABIT\], I will \[NEW HABIT\]
+
+These two strategies create obvious cues (1st Law of Behavior Change is to _make it obvious_)
+
+### Motivation Is Overrated; Environment Often Matters More
+
+Many of the actions we take every day are shaped not by purposeful drive and choice but by the most obvious option. 
+
+If you want to make a habit big part of your life, make cue a bit part of your environment. (multiple cues are better). Sprinkle triggers throughout your surroundings. Make sure the best choice is the most obvious one. Making a better decision is easy and natural when the cue for good habits are right in front of you. 
+
+Become an architect or designer of your life and not merely a consumer of it. 
+
+It's easier to associate a new habit with a new context than to build a new habit in face of competing cues. 
+
+"One space, one use". When you start mixing context, you'll start mixing habits - and the easier ones will usually win out. '
+
+If you want behaviors that are stable and predictable, you need an environment that is stable and predictable. (My note: this is possibly impossible when you have kids)
+
+### The Secret to Self-Control
+
+It's easier to practice self-restraint when you don't have to use it very often. So, yes, perseverance, grit, and will-power are essential to success, but the way to improve these qualities is not by wishing you were a more disciplined person, but by creating a more disciplined environment. 
