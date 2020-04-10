@@ -98,3 +98,17 @@ If you want behaviors that are stable and predictable, you need an environment t
 ### The Secret to Self-Control
 
 Instead of summoning a new dose of willpower when you want to do the right thing, your energy would be better spent optimizing your environment. Make the cues of your good habits obvious and the cues of your bad habits invisible. 
+
+### How to Make a Habit Irresistible
+
+Dopamine is release not only when you experience pleasure, but also when you anticipate it. Gamblers and cocaine addicts get a surge before they are about to act. When you predict an opportunity will be rewarding, your levels of dopamine spike in anticipation. And whenever dopamine rises, so does your motivation to act. 
+
+It is the anticipation of a reward - not the fulfillment of it - that gets us to take action. 
+
+Temptation bundling works by linking an action you want to do with an action you need to do. In Byrne's case, he bundled watching Netflix (the thing he wanted to do) with riding his stationary bike (the thing he needed to do). 
+
+Examples:
+
+After \[CURRENT HABIT\], I will \[HABIT I NEED\].
+
+After \[HABIT I NEED\], I will \[HABIT I WANT\].
