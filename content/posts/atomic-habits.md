@@ -67,7 +67,7 @@ The Habit Scorecard is a simple exercise you can use to become more aware of you
 
 ### The Best Way to Start a New Habit
 
-People who make a specific plan for when and where they will perform a new habit are more likely to follow through. 
+People who make a specific plan for when and where they will perform a new habit are more likely to follow through.
 
 Two strategies
 
@@ -83,13 +83,13 @@ These two strategies create obvious cues (1st Law of Behavior Change is to _make
 
 ### Motivation Is Overrated; Environment Often Matters More
 
-Many of the actions we take every day are shaped not by purposeful drive and choice but by the most obvious option. 
+Many of the actions we take every day are shaped not by purposeful drive and choice but by the most obvious option.
 
-If you want to make a habit big part of your life, make cue a bit part of your environment. (multiple cues are better). Sprinkle triggers throughout your surroundings. Make sure the best choice is the most obvious one. Making a better decision is easy and natural when the cue for good habits are right in front of you. 
+If you want to make a habit big part of your life, make cue a bit part of your environment. (multiple cues are better). Sprinkle triggers throughout your surroundings. Make sure the best choice is the most obvious one. Making a better decision is easy and natural when the cue for good habits are right in front of you.
 
-Become an architect or designer of your life and not merely a consumer of it. 
+Become an architect or designer of your life and not merely a consumer of it.
 
-It's easier to associate a new habit with a new context than to build a new habit in face of competing cues. 
+It's easier to associate a new habit with a new context than to build a new habit in face of competing cues.
 
 "One space, one use". When you start mixing context, you'll start mixing habits - and the easier ones will usually win out. '
 
@@ -97,18 +97,54 @@ If you want behaviors that are stable and predictable, you need an environment t
 
 ### The Secret to Self-Control
 
-Instead of summoning a new dose of willpower when you want to do the right thing, your energy would be better spent optimizing your environment. Make the cues of your good habits obvious and the cues of your bad habits invisible. 
+Instead of summoning a new dose of willpower when you want to do the right thing, your energy would be better spent optimizing your environment. Make the cues of your good habits obvious and the cues of your bad habits invisible.
 
 ### How to Make a Habit Irresistible
 
-Dopamine is release not only when you experience pleasure, but also when you anticipate it. Gamblers and cocaine addicts get a surge before they are about to act. When you predict an opportunity will be rewarding, your levels of dopamine spike in anticipation. And whenever dopamine rises, so does your motivation to act. 
+Dopamine is release not only when you experience pleasure, but also when you anticipate it. Gamblers and cocaine addicts get a surge before they are about to act. When you predict an opportunity will be rewarding, your levels of dopamine spike in anticipation. And whenever dopamine rises, so does your motivation to act.
 
-It is the anticipation of a reward - not the fulfillment of it - that gets us to take action. 
+It is the anticipation of a reward - not the fulfillment of it - that gets us to take action.
 
-Temptation bundling works by linking an action you want to do with an action you need to do. In Byrne's case, he bundled watching Netflix (the thing he wanted to do) with riding his stationary bike (the thing he needed to do). 
+Temptation bundling works by linking an action you want to do with an action you need to do. In Byrne's case, he bundled watching Netflix (the thing he wanted to do) with riding his stationary bike (the thing he needed to do).
 
 Examples:
 
 After \[CURRENT HABIT\], I will \[HABIT I NEED\].
 
 After \[HABIT I NEED\], I will \[HABIT I WANT\].
+
+### The Role of Family and Friends in Shaping Your Habits
+
+We imitate the habits of three groups in particular: 
+
+1. The close.
+2. The many.
+3. The powerful. 
+
+When changing your habits means challenging the tribe, change is unattractive. When changing your habits mean fitting in with the tribe, change is very attractive.
+
+ 
+
+... there are many different ways to address the same underlying motive. One person might learn to reduce stress by smoking a cigarette. Another person learns to ease their anxiety by going for a run. Your current habits are not necessarily the best way to solve the problems you face; they are just the methods you learn to use. Once you associate a solution with the problem you need to solve, you keep coming back to it. 
+
+A craving is the sense that something is missing. It is a desire to change your internal state. 
+
+Habits are attractive when we associate them with positive feelings, and we can use this insight to our advantage than to our detriment. 
+
+Reframing your habits to highlight their benefit rather than their drawbacks is a fast and lightweight way to reprogram your mind and make a habit more attractive. 
+
+My example: **Writing**. Instead of telling yourself "I need to do my daily writing", say "It's time to improve my thinking and communication"
+
+Create a motivation ritual by doing something you enjoy immediately before a difficult habit. 
+
+### Walk Slowly, but Never Backward
+
+When you're in motion, you're planning and strategizing and learning. Those are all good things, but they don't produce a result. 
+
+Action, on the other hand, is the type of behavior that will deliver an outcome.
+
+... motion allows us to feel like we're making progress without running the risk of failure. Most of us are experts at avoiding criticism. It doesn't feel to be good to fail or to be judged publicly, so we tend to avoid situations where that might have. And that's the big reason why you slip into motion rather than taking action: you want to delay your failure. 
+
+If you want to master a habit, the key is to start with repetition, not perfection. 
+
+The amount of time you have been performing a habit is not as important as the number of times you have performed it. 
