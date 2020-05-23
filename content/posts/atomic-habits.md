@@ -115,36 +115,156 @@ After \[HABIT I NEED\], I will \[HABIT I WANT\].
 
 ### The Role of Family and Friends in Shaping Your Habits
 
-We imitate the habits of three groups in particular: 
+We imitate the habits of three groups in particular:
 
 1. The close.
 2. The many.
-3. The powerful. 
+3. The powerful.
 
 When changing your habits means challenging the tribe, change is unattractive. When changing your habits mean fitting in with the tribe, change is very attractive.
 
- 
+... there are many different ways to address the same underlying motive. One person might learn to reduce stress by smoking a cigarette. Another person learns to ease their anxiety by going for a run. Your current habits are not necessarily the best way to solve the problems you face; they are just the methods you learn to use. Once you associate a solution with the problem you need to solve, you keep coming back to it.
 
-... there are many different ways to address the same underlying motive. One person might learn to reduce stress by smoking a cigarette. Another person learns to ease their anxiety by going for a run. Your current habits are not necessarily the best way to solve the problems you face; they are just the methods you learn to use. Once you associate a solution with the problem you need to solve, you keep coming back to it. 
+A craving is the sense that something is missing. It is a desire to change your internal state.
 
-A craving is the sense that something is missing. It is a desire to change your internal state. 
+Habits are attractive when we associate them with positive feelings, and we can use this insight to our advantage than to our detriment.
 
-Habits are attractive when we associate them with positive feelings, and we can use this insight to our advantage than to our detriment. 
-
-Reframing your habits to highlight their benefit rather than their drawbacks is a fast and lightweight way to reprogram your mind and make a habit more attractive. 
+Reframing your habits to highlight their benefit rather than their drawbacks is a fast and lightweight way to reprogram your mind and make a habit more attractive.
 
 My example: **Writing**. Instead of telling yourself "I need to do my daily writing", say "It's time to improve my thinking and communication"
 
-Create a motivation ritual by doing something you enjoy immediately before a difficult habit. 
+Create a motivation ritual by doing something you enjoy immediately before a difficult habit.
 
 ### Walk Slowly, but Never Backward
 
-When you're in motion, you're planning and strategizing and learning. Those are all good things, but they don't produce a result. 
+When you're in motion, you're planning and strategizing and learning. Those are all good things, but they don't produce a result.
 
 Action, on the other hand, is the type of behavior that will deliver an outcome.
 
-... motion allows us to feel like we're making progress without running the risk of failure. Most of us are experts at avoiding criticism. It doesn't feel to be good to fail or to be judged publicly, so we tend to avoid situations where that might have. And that's the big reason why you slip into motion rather than taking action: you want to delay your failure. 
+... motion allows us to feel like we're making progress without running the risk of failure. Most of us are experts at avoiding criticism. It doesn't feel to be good to fail or to be judged publicly, so we tend to avoid situations where that might have. And that's the big reason why you slip into motion rather than taking action: you want to delay your failure.
 
-If you want to master a habit, the key is to start with repetition, not perfection. 
+**If you want to master a habit, the key is to start with repetition, not perfection.**
 
-The amount of time you have been performing a habit is not as important as the number of times you have performed it. 
+The amount of time you have been performing a habit is not as important as the number of times you have performed it.
+
+### The Law of Least Effort
+
+... our real motivation is to be lazy and do what is convenient. 
+
+This is why it is critical to make your habits so easy that you'll do them even when you don't feel like it. If you can make your good habits more convenient, you'll be more likely to follow through on them. 
+
+.. when we remove the points of friction that sap our time and energy, we can achieve more with less effort. (Tidying up, lightening a cognitive load)
+
+Increase friction associated with bad behaviors. When frictions is high, habits are difficult.
+
+Prime your environment to make future actions easier. 
+
+### How to Stop Procrastinating by Using the Two-Minute Rule
+
+... a habit can be completed in just a few seconds, but it can also shape the actions you take for minutes or hours afterward. (Thinking of scrolling through your phone first thing in the mourning)
+
+"When you start a new habit, it should take less than two minutes to do."
+
+Your goal might be to run a marathon, but your gateway habit is to put on your running shoes. 
+
+### How to Make Good Habits Inevitable and Bad Habits Impossible
+
+A commitment device is a choice you make in the present that controls your actions in the future. (Turn off internet at 10PM)
+
+The best way to break a habit is to make it impractical to do. Increase the friction until you don't even have an option to act. (Designing a system)
+
+... create an environment of inevitability - a space where good habits are not just an outcome you hope for but an outcome that is virtually guaranteed. 
+
+### The Cardinal Rule of Behavior Change
+
+As a general rule, the more immediate pleasure you get from an action, the more strongly you should question whether it aligns with your long-term goals. 
+
+What is immediately rewarded is repeated. What is immediately punished is avoided. 
+
+### How to Stick with Good Habits Every Day
+
+Research has shown that people who track their progress on goals like losing weight, quitting smoking, and lowering blood pressure are more likely to improve than those who don't.
+
+**Never miss twice.**
+
+The first mistake is never the one that ruins you. It is the spiral of repeated mistakes that follows. Missing once is an accident. Missing twice is the start of a new habit. 
+
+As Charlie Munger says, "The first rule of compounding: Never interrupt it unnecessarily."
+
+Simply doing something - ten squats, five sprints, a push-up, anything really is huge. Don't put up with a zero. Don't let losses eat into your compounding. 
+
+It's easy to train when you feel good, but it's critical to show up when you don't feel like it - even if you do less than you hope. Going to the gym for five minutes may not improve your performance, but it reaffirms your identity. 
+
+### How an Accountability Partner Can Change Everything
+
+A habit contract is a verbal or written agreement in which you state your commitment to a particular habit and the punishment that will occur if you don't follow through. Then you find one or two people to act as your accountability partners and sign off on the contract with  you. 
+
+### The Truth About Talent (When Genes Matter and When They Don't)
+
+When you can't win by being better, you can win by being different. By combining your skills, you reduce the level of competition, which makes it easier to stand out. ... A great player creates a new game that favors their strengths and avoids their weaknesses.
+
+One of the best ways to ensure that your habits remain satisfying over the long-run is to pick behaviors that align with your personality and skills. Work hard on the things that come easy. 
+
+### The Goldilocks Rule: How to Stay Motivated in Life and Work
+
+... one of the most consistent findings is that the way to maintain motivation and achieve peak levels of desire is to work on tasks of "just manageable difficulty." (the Goldilocks Rule)
+
+Once a habit has been established, however, it's important to continue to advance in small ways. 
+
+Scientists... found that to achieve a state of flow, a task must be a roughly 4% beyond your current ability. 
+
+... successful people feel the same lack of motivation as everyone else. The difference is that they still find a way to show up despite the feeling of boredom. 
+
+... if you only do the work when it's convenient or exciting, then you'll never be consistent enough to achieve remarkable results. 
+
+Processionals stick to the schedule; amateurs let life get in the way. Professionals know what is important to them and work toward it with purpose; amateurs get pulled off course by the urgencies of life. 
+
+### The Downside of Creating Good Habits
+
+In fact, some research has shown that once a skill has been mastered there is usually a slight decline in performance over time. 
+
+... after one habit has been mastered, you have to return to the effortful part of the work and begin building the next habit. 
+
+Habits + Deliberate Practice = Mastery 
+
+Establish a system for reflection and review. (Yearly reviews)
+
+Periodic reflections and review is live viewing yourself in the mirror from a conversational distance. You can see the important changes you should make without losing sight of the bigger picture. 
+
+"keep your identity small." The more you let a single belief define you, the less capable you are of adapting when life changes you. 
+
+> Men are born soft and supple;
+>
+> dead, they are stiff and hard.
+>
+> Plants are born tender and pliant;
+>
+> dead, they are brittle and dry.
+>
+> Thus whoever is stiff and inflexible
+>
+> is a disciple of death.
+>
+> Whoever is soft and yielding
+>
+> is a disciple of life.
+>
+> The hard and stiff will be broken.
+>
+> The soft and supple will prevail.
+>
+> \-- Lao Tzu
+
+### Little Lessons from the Four Laws
+
+As Naval Ravikant says, "The trick to doing anything is first cultivating a desire for it."
+
+We can only be rational and logical after we have been emotional. The primary mode of the brain is to feel; the secondary mode is to think. 
+
+Your actions reveal how badly you want something. If you keep saying something is a priority but never act on it, then you don't really want it. It's time to have an honest conversation with yourself. Your actions reveal your true motivations. 
+
+"Being poor is not having too little, it is wanting more". -Seneca If your wants outpace your likes, you'll always be unsatisfied. You're perpetually putting more weight on the problem than the solution. 
+
+Hope declines with experience and is replace by acceptance. Your expectation (craving) is based solely on promise. The second time around, your expectation is grounded in reality. You begin to understand the process works and your hope is gradually traded for a more accurate prediction and acceptance of the likely outcome. 
+
+New plans offer hope because we don't have any experiences to ground our expectations. New strategies seem more appealing than old ones because they have unbounded hope. 
